@@ -1,0 +1,2 @@
+# jabalpur-public-school.github.io
+The Green Valley Public School offers its students in India,internationally renowned qualification that are recognized by educational institutions and employers across the globe. The school provides it students with the opportunity to gain global exposure by associating itself with different institutions. Our aim is to get our students globally recognized through these programs.
